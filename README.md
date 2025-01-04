@@ -1,2 +1,2 @@
-# indirectlink.github.io
-Nothing to see here.
+# Indirect Link
+Redirecting visitors since 2025.
